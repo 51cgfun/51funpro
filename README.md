@@ -141,10 +141,10 @@
 <p>后续来啦！现场拨通红内裤哥母亲电话告状！<br /><a class="btn btn-primary" href="https://h3r7z1.txucohspg.com/archives/135286/" target="_blank" rel="noopener">👉点我跳转后续</a></p>
 <p>绝了！男子美团开宾馆与小学妹偷情，没想到预留手机号竟然是女友的，自己还不知道，被女友带人上门捉奸！</p>
 <p>这哥们真是有点不太聪明的样子啊，这样被抓纯属活该！瓜友们不要向他学习哈！</p>
-<p><img style="margin: 5px;" src="image/pic1.jpg" alt="1.jpg" width="500" /><br /><img style="margin: 5px;" src="image/pic2.jpg" alt="pic2.jpg" width="500" /></p>
-<p><img style="margin: 5px;" src="image/pic3.jpg" alt="pic3.jpg" width="500" /></p>
-<p><img style="margin: 5px;" src="image/pic4.jpg" alt="pic4.jpg" width="500" /></p>
-<p><img style="margin: 5px;" src="image/pic5.jpg" alt="pic5.jpg" width="500" /></p>
+<p><img style="margin: 5px;" src="pic1.jpg" alt="1.jpg" width="500" /><br /><img style="margin: 5px;" src="pic2.jpg" alt="pic2.jpg" width="500" /></p>
+<p><img style="margin: 5px;" src="pic3.jpg" alt="pic3.jpg" width="500" /></p>
+<p><img style="margin: 5px;" src="pic4.jpg" alt="pic4.jpg" width="500" /></p>
+<p><img style="margin: 5px;" src="pic5.jpg" alt="pic5.jpg" width="500" /></p>
 <p>&nbsp;</p>
 <hr />
 <p>抓奸现场：</p>
